@@ -14,3 +14,7 @@ E-Mail:40028922@gmail.com
 ## Experiencia:
 
 Caixa de Mercado (2019-2023)
+
+## Faculdade:
+
+Analise desenvolvimento de sistemas 
